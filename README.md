@@ -1,2 +1,1 @@
-Joseph Anciso 
-17
+Joseph Anciso
