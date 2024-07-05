@@ -1,1 +1,2 @@
-Joseph Anciso 
+Joseph Anciso
+ancisoj@oregonstate.edu
